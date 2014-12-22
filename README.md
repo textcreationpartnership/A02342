@@ -35,11 +35,60 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A myrroure for magistrates Wherein may be seen by example of other, with howe greuous plages vices a
+
+1. Love and Lyve. To the nobilitye and all other in office, God graunt vvisedome and all thinges nedeful for the preseruacion of theyr Estates. Amen.
+
+1. ¶ A Briefe Memorial of sundrye Unfortunate Englishe men. William Baldwin to the Reader.
+
 #####Body#####
-A myrroure for magistrates Wherein may be seen by example of other, with howe greuous plages vices a
+
+1. The fall of Robert Tresilian chiefe Iustice of Englande, and other his felovves, for misconstruyng the lavves▪ and expounding them to serue the Princes affections.
+WHan maister Ferrers had finished this tragedye, whiche semed not vnfyt for the persons touched in t
+1. Hovve the tvvo Rogers, surnamed Mortimers, for theyr sundry vices ended theyr lyues vnfortunatelye.
+AFter that this Tragedy was ended, mayster Ferrers sayde: seyng it is best to place eche person in h
+1. Hovve syr Thomas of VVudstocke Duke of Glocester, vncle to king Richarde the seconde, vvas vnlavvfully murdred.
+WHan maister Ferrers had ended this fruytfull tragedye, because no man was readye with another, I, h
+1. Hovve the Lorde Movvbray promoted by Kyng Richarde the seconde, vvas by hym banyshed the Realme▪ and dyed miserably in exyle.
+THis tragicall example was of all the cumpany well liked, how be it a doubte was founde therin, and 
+1. Hovve kyng Richarde the seconde vvas for his euyll gouernaunce deposed from his seat, and miserably murdred in prison.
+WHan he had ended this so wofull a tragedy, and to all Princes a ryght wurthy instruction, we paused
+1. Hovve Ovven Glendour seduced by false prophesies tooke vpon him to be prince of VVales, and vvas by Henry then prince therof, chased to the mountaynes, vvhere he miserably dyed for lacke of foode.
+WHan starued Owen had ended his hungry exhortacion, it was well inough liked. Howbeit one found a do
+1. Hovv Henry Percy Earle of Northhumberland, vvas for his couetous and trayterous attempt put to death at Yorke.
+BY that this was ended, I had found out the storie of Richard earle of Cambridge: and because it con
+1. Hovv Richard erle of Cambridge entending the kinges destruction vvas put to death at Southhampton.
+WHan stout Richarde had stoutly sayd his mind, belike ꝙ one, this Rychard was but a litle man, or el
+1. Hovv Thomas Montague the earle of Salysbury in the middes of his glory, vvas chaunceably slayne vvith a piece of ordinaunce.
+THis straunge aduenture of the good erle drave vs al into a dumpne, inwardly lamenting his wofull de
+1. Hovv king Iames the first for breaking his othes and bondes, vvas by gods suffrauns miserably murdred of his ovvne subiectes.
+WHan this was sayd, let King Iamy go ꝙ mayster Ferrers, & returne we to our owne story, & se what br
+1. Hovv Lorde VVilliam Delapole Duke of Suffolke vvas vvorthily punyshed for abusing his Kyng and causing the destruction of good Duke Humfrey.
+WHan this was sayd: Every man reioyced to heare of a wicked man so maruaylously well punished: For t
+1. Hovv Iacke Cade traiterously rebelling agaynst his Kyng, vvas for his treasons and cruell doinges vvurthely punyshed.
+BY saint mary (ꝙ one) yf Iacke wer as well learned, as you haue made his oracion, What so ever he wa
+1. Hovv Richard Plantagenet duke of York vvas slayne through his over rash boldnes, and his sonne the earle of Rutland for his lack of valiauns.
+WIth this, mayster Ferrers shooke me by the sleve, saying: why how now man, do you forget your selfe
+1. Hovv the lord Clyfford for his straunge and abhominable cruelty, came to as straunge and sodayne a death.
+
+1. The infamous ende of Lord Iohn Tiptoft
+Earle of VVurcester, for cruelly
+executing his princes
+butcherly commaundementes.
+THis Earles tragedy was not so soone finished, but one of the cumpany had prouided for an other, of 
+1. Hovv sir Richard Nevell Earle of VVarvvike, and his brother Iohn Lord Marquise Mountacute through their to much boldnes vver slayne at Barnet field.
+ASsoone as the Erle had ended his admonicion, sure (ꝙ one) I thinke the Erle of Warwike although he 
+1. Hovv king Henry the syxt a vertuous prince, vvas after many other miseries cruelly murdered in the Tovver of London.
+THis tragedy ended, an other said: eyther you or king Henry are a good philosopher, so narowly to ar
+1. Hovv George Plantagenet third sonne of the Duke of Yorke, vvas by his brother King Edvvard vvrongfully imprisoned, and by his brother Richard miserably murdered.
+BY that this tragedy was ended, nyghte was so nere cum that we could not conveniently tary together 
+1. Hovv king Edvvard through his surfeting and vntemperate life, sodainly died in the mids of his prosperity.
+
 #####Back#####
-A myrroure for magistrates Wherein may be seen by example of other, with howe greuous plages vices a
+
+1. The Contentes and Table of the booke.
+
+1. ¶Fautes escaped in the printing.
+¶ Imprinted at London in Fletestrete nere to Saynct Dunstones Church by Thomas Marshe.
 **Types of content**
 
   * There are 3172 **verse** lines!
